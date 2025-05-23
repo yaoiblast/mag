@@ -15,7 +15,7 @@
 
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎    ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎  ‎ ‎ vi. i block FREELY! VERY FREELY.
    ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎    ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎    ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  vii. i heavily dislike trans headcanons.      ‎ 
-   ‎ ‎ ‎ ‎ ‎ ‎       ‎ ‎ ‎ ‎ ‎ ‎ ‎       ‎ ‎ ‎ ‎ ‎ ‎ ‎       ‎ ‎ ‎ ‎ ‎ ‎ ‎       ‎ ‎ ‎ ‎ ‎ ‎ ‎ (yes, you can ask why. i will answer most likely, just don't be rude about it.)
+   ‎ ‎ ‎ ‎ ‎ ‎       ‎ ‎ ‎ ‎ ‎ ‎ ‎       ‎ ‎ ‎ ‎ ‎ ‎ ‎       ‎ ‎ ‎ ‎ ‎ ‎ ‎       ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎       ‎ ‎ ‎ ‎ ‎ ‎ ‎       ‎ ‎ ‎ ‎ ‎ ‎ ‎       ‎ ‎ ‎ ‎ ‎ ‎ ‎    ‎ ‎ ‎ ‎ ‎ ‎       ‎ ‎ ‎ ‎ ‎ ‎ ‎       ‎ ‎ ‎ ‎ ‎ ‎ ‎       ‎ ‎ ‎ ‎ ‎ ‎ ‎ (yes, you can ask why. i will answer most likely, just don't be rude about it.)
    
    
 
